@@ -1,5 +1,5 @@
 The videos are also available at Youtube:
 
-https://youtube.com/shorts/0umAIzYqazo?feature=share (Mach 0.5)
+https://youtu.be/6M76UkCtVrE (Mach 0.5)
 
-https://youtube.com/shorts/b4FpWZ9Jz3Y?feature=share (Mach 0.75)
+https://youtu.be/rhrIRClc408 (Mach 0.75)
